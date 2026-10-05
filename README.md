@@ -1,0 +1,1 @@
+# memecoin-ai-scout-
